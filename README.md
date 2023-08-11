@@ -1,4 +1,4 @@
-## Work as
+## Work
 
 - [Instructor](https://www.inflearn.com/users/@aftercamp)
 
